@@ -1,0 +1,1 @@
+# freemanke-clashxpro-proxyignorelist
